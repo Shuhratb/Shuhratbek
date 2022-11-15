@@ -1,0 +1,2 @@
+# Shuhratbek
+talaba
